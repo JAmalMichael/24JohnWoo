@@ -1,4 +1,4 @@
-💫 I'm currently lookibng for partners to learn and generate new ideas together.
+💫 I'm currently looking for partners to learn and generate new ideas together.
 
 📫 You can reach me at eshimi090@gmail.com
 
